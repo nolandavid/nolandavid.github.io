@@ -1,1 +1,0 @@
-# nolandavid.github.io
